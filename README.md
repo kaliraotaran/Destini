@@ -1,5 +1,4 @@
-![image](https://github.com/kaliraotaran/Destini/assets/81376236/b8cf478f-213b-4efe-b0d1-92c2a3b811c3)
-
+ 
 
 
 
